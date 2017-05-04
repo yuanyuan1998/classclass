@@ -38,5 +38,5 @@
 + 2006小说《一座城池》
 + 2007小说《光荣日》 
 
-文字链接：[百度百科](http://baike.baidu.com/link?url=9NEqnZIXCR_79UJhah9hAGRgCpYjl6FpI2183hunJJ0rLpQIAbXdRmS0GB7LLGBKRuxS3GOFJb-_YvA85R7I3Blvo1xNAcj6rpB7bd1bbFa)     
+文字链接：[百度百科](http://baike.baidu.com/link?url=9NEqnZIXCR_79UJhah9hAGRgCpYjl6FpI2183hunJJ0rLpQIAbXdRmS0GB7LLGBKRuxS3GOFJb-_YvA85R7I3Blvo1xNAcj6rpB7bd1bbFa)  
 URL链接：<http://baike.baidu.com/link?url=9NEqnZIXCR_79UJhah9hAGRgCpYjl6FpI2183hunJJ0rLpQIAbXdRmS0GB7LLGBKRuxS3GOFJb-_YvA85R7I3Blvo1xNAcj6rpB7bd1bbFa>
